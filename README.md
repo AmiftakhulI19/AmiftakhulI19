@@ -49,6 +49,5 @@ Feel free to reach me at takhulilmi99@gmail.com
 
 <br/>  
 
-
 ----
 <div align="center">Generated using <a href="https://profilinator.rishav.dev/" target="_blank">Github Profilinator</a></div>
